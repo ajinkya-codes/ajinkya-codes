@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Ajinkya! (@ajinkya-codes)
+- 👀 I’m interested in web development & graphic illustration.
+- 🌱 I’m currently learning e-commerce web systems and 3D modelling in Blender.
+- 💞️ I’m looking to collaborate on web projects.
+- 📫 Subscribe to my YouTube channel for amazing updates & tutorials! (Ajinkya More)
+- 👍 Follow me on Instagram (@ajinkya.codes)
